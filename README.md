@@ -1,0 +1,1 @@
+# smartkart_privacy_policy
